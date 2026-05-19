@@ -1,4 +1,4 @@
-# 
+# advanced bot sniper MEV plugins é o melhor bot sniper MEV plugins com varredura de degen coins e back-running. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
